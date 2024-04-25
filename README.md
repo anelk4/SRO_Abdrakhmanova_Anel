@@ -1,4 +1,5 @@
 # SRO_Abdrakhmanova_Anel
+фоточки 
 ![image](https://github.com/anelk4/SRO_Abdrakhmanova_Anel/assets/125411249/40e1d0ef-2150-4400-8314-62e6b7c4fc8c)
 ![image](https://github.com/anelk4/SRO_Abdrakhmanova_Anel/assets/125411249/9ae4228f-4d3a-4f5a-8d4b-39ab8fc991b5)
 ![image](https://github.com/anelk4/SRO_Abdrakhmanova_Anel/assets/125411249/282f3769-9453-443c-bb9d-a715ccc5ba37)
